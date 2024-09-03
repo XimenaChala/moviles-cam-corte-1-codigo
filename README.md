@@ -1,1 +1,3 @@
-# moviles-cam-corte-1-codigo
+link https://trello.com/invite/b/66d670a617d9f5f7ffe2904a/ATTIe4335ea931f16f2085d1d1021f2e446f2B3B69E7/vista-del-administrador
+
+https://trello.com/invite/b/66d66cddd575657ce3048c0c/ATTI6ba94d566041c4a87ffeefcca41de2d46A11F937/ecoexplorer-alto-magdalena
